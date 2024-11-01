@@ -1,4 +1,4 @@
-## Hi there 👋
+## Greetings, my dear friends! 👋
 
 <img src="https://github.com/Woodoomuro/Woodoomuro/blob/main/maxresdefault.jpg">
 
